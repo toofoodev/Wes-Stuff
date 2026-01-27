@@ -1,2 +1,2 @@
-# Wes-Stuff
-oh yea my stuff i made yeyeyeyeyeyeyeyeye
+# Wes' Stuff
+join the discord ig idk
